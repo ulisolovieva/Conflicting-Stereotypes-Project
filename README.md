@@ -4,3 +4,5 @@ Find out more about the science of first impressions from Dr. Todorov's Lab: htt
 
 New hyperrealistic models of social traits: https://onemillionimpressions.com
 
+Email: uliana@uchicago.edu
+Twitter: @__neuli
